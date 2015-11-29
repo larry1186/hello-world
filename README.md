@@ -1,2 +1,4 @@
 # hello-world
-Just one more hellow world in the world of hellos.
+++++++======++++++
+
+Helping Everyone Learn Life's Obsticles - With Out Relative Limitless Doings
